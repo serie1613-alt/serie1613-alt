@@ -31,6 +31,4 @@ Ofrezco soluciones web a **precios accesibles y competitivos**, ideales para peq
 
 Si necesitas una página web para tu negocio, estaré encantado de ayudarte a crear algo profesional y efectivo.
 
----
-
 ⭐ *Tu negocio merece verse profesional en internet.*
